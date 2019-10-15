@@ -6,8 +6,7 @@
 
 大人综合视频Ⅰ 
 
-http://shake5.xyz 
-http://shake6.xyz
+http://shake3.xyz
 
 
 
@@ -19,8 +18,7 @@ http://poxie1.xyz
 
 大人综合小说 
 
-https://wuyebook2001.xyz 
-https://wuyebook1001.xyz
+https://wuyebook.xyz
 
 
 合作邮箱：shake753357@gmail.com
