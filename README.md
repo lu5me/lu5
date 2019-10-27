@@ -17,7 +17,7 @@ http://poxie.xyz
 
 午夜福利小说
 
-https://wuyebook.xyz
+http://wuyebook.xyz
 
 
 
